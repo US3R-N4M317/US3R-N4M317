@@ -1,3 +1,3 @@
-<p align="center">text=Hello beans=height=100"/>
-</p> <img height="1000" src="https://s7.ezgif.com/tmp/ezgif-7f5718d0cc77b3d5.jpg"/>
+<h2> <p align="center">  ~★.°•[ᴍʏ ʙɪᴏ<𝟹]•°.★ </h2>
+</p> <img height="400" src="https://i.pinimg.com/736x/91/d6/a4/91d6a4a13b282ef65500ab38209be935.jpg"/>
 </a>
